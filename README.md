@@ -1,0 +1,2 @@
+# qaamuuska
+Qaamuska Erey Bixinta
